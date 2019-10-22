@@ -1,5 +1,4 @@
 # Batman
-Time for punishment!
+Time for justice!
 
-短信轰炸机
-电话轰炸机
+Warm greetings through sms and calls 
